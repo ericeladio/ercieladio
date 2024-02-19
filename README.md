@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello, I'm Eric Chavarria from Mexico 🇲🇽, and I enjoy exploring the magical places 🪄 that this country hides. <br>I am certain that sustainable work 💪🏻 and human health ❤️are two fundamental pillars that nourish each other, building a path towards holistic well-being and lasting success. <br>That's why I strive to give my best in the projects assigned to me. Along my professional journey, 🚶 I've had to learn about new technologies, methodologies, and approaches to tackling a project. That's why I enjoy collaborating with people 🧑🏼‍💻 who are passionate about their work and personal growth.
+Hello, I'm Eric Chavarria from  🇲🇽 Mexico, and I enjoy exploring the magical places 🪄 that this country hides. <br>I am certain that sustainable work 💪🏻 and human health ❤️ are two fundamental pillars that nourish each other, building a path towards holistic well-being and lasting success. <br>That's why I strive to give my best in the projects assigned to me. Along my professional journey, 🚶 I've had to learn about new technologies, methodologies, and approaches to tackling a project. That's why I enjoy collaborating with people 🧑🏼‍💻 who are passionate about their work and personal growth.
 
 
 ## 🌐 Socials:
